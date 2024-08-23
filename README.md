@@ -1,5 +1,7 @@
-editing later
+what do people put in here
 
+friends
+@1xbladekind , @AV1APPL3 , @ charturo , kero , @princeofheart , @timeTurntables
 <!--
 **vanyaowner/vanyaowner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
