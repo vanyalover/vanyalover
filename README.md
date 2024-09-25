@@ -1,4 +1,7 @@
-
+i'm gonna whip you into shape; gonna whip you into shape!
+<br>
+literally light yagami, tamaki suoh, fuyuhiko kuzuryu, rantaro amami, arthur lester, robert angier, david chiem, teru minamoto, xander matthews, and kyoya otori
+<br> ...more may be added
 <!--
 **vanyaowner/vanyaowner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
