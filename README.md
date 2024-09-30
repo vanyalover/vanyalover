@@ -1,6 +1,6 @@
 i'm gonna whip you into shape; gonna whip you into shape!
 <br>
-literally light yagami, tamaki suoh, fuyuhiko kuzuryu, rantaro amami, arthur lester, reo mikage, wataru kuon, robert angier, charles cuevas, david chiem, teru minamoto, xander matthews, kabru, miles edgeworth, kyoya otori, ryosuke kira, and glaceon...
+literally light yagami, tamaki suoh, fuyuhiko kuzuryu, rantaro amami, arthur lester, reo mikage, wataru kuon, robert angier, charles cuevas, david chiem, teru minamoto, xander matthews, kabru, miles edgeworth, kyoya otori, luka, ryosuke kira, and glaceon...
 <br> ...more may be added
 <!--
 **vanyaowner/vanyaowner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
