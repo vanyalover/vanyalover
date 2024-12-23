@@ -1,4 +1,11 @@
-
+i love vanya
+<br>
+<br>
+i am...
+<br>
+kiyotaka ishimaru, fuyuhiko kuzuryu, rantaro amami, tamaki suoh, light yagami, miles edgeworth, gepard, gojo satoru (I am Gojo. You LIE), tsujinaka yoshiki, arthur lester (MO!), kabru, reo mikage, teru minamoto (buttonphobia), nikei yomiuri, xander matthews, charles cuevas, david chiem, robert angier, reigen arataka, hotaro oreki, teruki hanazawa, brendon small (home movies), aki hayakawa, almond cookie, ritsu kageyama, clotted cream cookie, pure vanilla cookie, crème brûlée cookie, & camellia cookie
+<br>
+...in chronological order of discovery
 <!--
 **vanyaowner/vanyaowner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
