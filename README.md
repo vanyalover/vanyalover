@@ -3,4 +3,4 @@
 </div>
 
 
-... ALTS : @arthurlester ,, @camelliacookie ,, @ragnvindr-diluc ,, @TAMAKISUOU ,, @wolfgangakire
+<div align="center">... ALTS : @arthurlester ,, @camelliacookie ,, @ragnvindr-diluc ,, @TAMAKISUOU && @wolfgangakire !!</div>
