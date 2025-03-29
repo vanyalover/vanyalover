@@ -1,5 +1,5 @@
 <div align="center">
-  <img width = "60%" src="https://i.pinimg.com/736x/b6/db/ea/b6dbea25205b28203e0e5f7166a4a3e7.jpg">
+  <img width = "60%" src="https://pin.it/6i3D4vcPj">
 </div>
 
 
