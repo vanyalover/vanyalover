@@ -1,5 +1,5 @@
 <div align="center">
-  <img width = "70%" src="https://i.pinimg.com/736x/d1/35/64/d135641e539d4a465f0527c4a608c79d.jpg">
+  <img width = "70%" src="https://i.pinimg.com/736x/3d/47/ba/3d47babc6ab499645d5da328512d57a9.jpg">
 </div>
 <div align="center">it was fate ♱♡☀︎</div>
 <br>
