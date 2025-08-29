@@ -8,4 +8,4 @@
 
 **dni**: overly sexual and immature people. hazbin/helluva fans. if you **joke about wars**, fake mental illnesses, or **disrespect religion**. people that romanticise criminals / are obsessed with true crime, e.g. **zero day**. if you are born in 2010 and later **iwc**, i do not like interacting with young people. it's advisable that **narcissistic people** and **systems** *(unless we already know each other)* do not interact with me; this is mainly for your sake as i am likely to doubt you or feel threatened/uncomfortable by you. i understand your disorder is out of your power but if i suspect/discover you are faking **i will hate you**. what you do mocks the struggle of real systems and only brings more backlash.
 <br>
-<div align="center">... ALTS : @arthurlester ,, @camelliacookie ,, @ragnvindr-diluc ,, @TAMAKI-SUOU && @wolfgangakire !!</div>
+<div align="center">... ALTS : @arthurlester ,, @camelliacookie ,, @hayashi-mai ,, @ragnvindr-diluc ,, @TAMAKI-SUOU && @wolfgangakire !!</div>
