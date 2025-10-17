@@ -1,7 +1,7 @@
 <div align="center">
-  <img width = "70%" src="https://64.media.tumblr.com/425e3b673f43f69843a3554b6b81d580/e7dd0e7a8633fdc6-c7/s1280x1920/f6b843c9a91fb16e499b8f3779494b7bc4bd541b.pnj">
+  <img width = "70%" src="https://pbs.twimg.com/media/GqsCmQJXIAAxjpf?format=jpg&name=4096x4096">
 </div>
-<div align="center">pfp; akai-nekonya :: banner; latenightchat</div>
+<div align="center">art credits; ripple_bipple</div>
 <br>
 
 **byi**: i do not play ponytown with the intent to create well-acquainted and lasting friendships, so do not expect this from me. i rarely interact with people outside of my party, and on the off-chance that i do, be aware that i **often go afk without warning**, i am **typically off-tab**, and i will usually adjust to your behaviour *unless you are weird.* i **don't like nor need tone tags** and i am not fond of oversharing about myself. i am very skeptical and judgemental, so i apologise for my hesitance to believe certain things<br>
