@@ -1,8 +1,8 @@
 i do not play ponytown with the intent to create well-acquainted and lasting friendships, however **this doesn't mean i don't want to talk to people!** i encourage my party members to speak with me; i'm happy to interact with any of you.
 <div align="center">
-  <img width = "40%" src="https://i.pinimg.com/1200x/8e/9b/9c/8e9b9c608d873b0c0595726018a4d2e7.jpg">
+  <img width = "40%" src="https://64.media.tumblr.com/fa76c8cc2c924ad9cda3c9857b927507/734b93aeeac634ae-2e/s2048x3072/2a6d59fc15c848dd57537553ae21afd85e7d2aaf.jpg">
 </div>
-<div align="center">art credits; vaderfreaks & kyou_039</div>
+<div align="center">art credits; ripple_bipple & valvalentinnee</div>
 ![](https://komarev.com/ghpvc/?username=lazulea&label=test&base=110300&abbreviated=true&color=91150c)
 
 <br>
