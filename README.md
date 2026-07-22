@@ -1,3 +1,5 @@
+<div align="center">
+  
 ![](https://komarev.com/ghpvc/?username=lazulea&label=hello&base=110300&abbreviated=true&color=91150c)
 i do not play ponytown with the intent to create well-acquainted and lasting friendships, however **this doesn't mean i don't want to talk to people!** i encourage my party members to speak with me; i'm happy to interact with any of you.
 <div align="center">
