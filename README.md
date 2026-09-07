@@ -4,7 +4,7 @@
 
 i do not play ponytown with the intent to create well-acquainted and lasting friendships, however **this doesn't mean i don't want to talk to people!** i encourage my party members to speak with me; i'm happy to interact with any of you.
 <div align="center">
-  <img width = "60%" src="https://i.pinimg.com/736x/da/6e/40/da6e40c7fb6342dffece5c0087d9edd2.jpg">
+  <img width = "40%" src="https://i.pinimg.com/736x/da/6e/40/da6e40c7fb6342dffece5c0087d9edd2.jpg">
 </div>
 
 ${\textsf{\color{#d4ab3b}art credits; eriimyon}}$
